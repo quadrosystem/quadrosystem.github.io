@@ -1,1 +1,0 @@
-# quadrosystem.github.io
